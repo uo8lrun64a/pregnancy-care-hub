@@ -265,13 +265,17 @@ A：带齐美国医院出具的“胚胎移植证明”“预产期证明”，�
 
 ## 推荐站点
 
-- [武汉市人民医院试管费用多少钱？试管婴儿费用构成与报销详解](https://www.wuzhenzhi.cn/144.html)
-- [试管婴儿成功分享经验的案例有哪些？真实案例与经验视频解读](https://www.wuzhenzhi.cn/145.html)
-- [广州省二人民医院试管成功率多少？显微取精广医三院成功率科普解读](https://www.wuzhenzhi.cn/146.html)
-- [北医三院三代试管费用高吗？费用构成与影响因素详细解读](https://www.wuzhenzhi.cn/147.html)
-- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
-- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
-- [思则凯多少钱一支——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/15.html)
-- [柳州妇幼第三代试管单胎多少钱？费用构成与影响因素详解](https://www.wuzhenzhi.cn/150.html)
+- [['https://www.luruihang.com/2341.html', '吃黄体酮必须有撤退性出血吗']](https://www.luruihang.com/2341.html)
+- [['https://www.xmxinyhwzhs.cn/20605666524190.html', '卵巢早衰代生服务价格去哪家医院(卵巢早衰代生服务价格成功案例)']](https://www.xmxinyhwzhs.cn/20605666524190.html)
+- [['https://www.cndcxc.com/daiyunmamai/20251021/16821.html', '三代机构，习惯性流产该如何保胎']](https://www.cndcxc.com/daiyunmamai/20251021/16821.html)
+- [['https://www.chengyanghg.cn/324.html', '试管婴儿生男孩费用构成与利弊全面解析']](https://www.chengyanghg.cn/324.html)
+- [['https://www.3899234.com/20250927-154.html', '代生服务平台&空腹备孕运动，空腹备孕运动有影响吗']](https://www.3899234.com/20250927-154.html)
+- [['https://www.syldezdhkj.cn/16582466607645.html', '42岁取卵8个一般能配几个？,供卵试管费用']](https://www.syldezdhkj.cn/16582466607645.html)
+- [['https://www.sandwnot.com/129642937030.html', '新疆医科大学试管婴儿费用']](https://www.sandwnot.com/129642937030.html)
+- [['https://www.xnnpbhdz.cn/15398031831329.html', '瘦多囊代生包成功促排卵多少钱一颗 多囊促排卵多少个比较好']](https://www.xnnpbhdz.cn/15398031831329.html)
+- [['https://www.fmngst.com/1893505556492.html', '2026安徽试管婴儿医院排名最好，附安徽三代试管怀孕费用一览表']](https://www.fmngst.com/1893505556492.html)
+- [['https://www.sjb493.cn/14693139137625.html', '沈阳菁华不孕不育医院怎么样？做代生条件成功率高吗？']](https://www.sjb493.cn/14693139137625.html)
+- [['https://www.hghbjm.com/176.html', '助孕捐卵：南昌试管婴儿医院排行榜哪家技术比较好']](https://www.hghbjm.com/176.html)
+- [['https://www.mimi567.com/365.html', '试管代生女孩:鲜胚移植怎么计算预产期？移植鲜胚当天算不算一天？']](https://www.mimi567.com/365.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
