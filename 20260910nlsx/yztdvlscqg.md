@@ -26,13 +26,20 @@
 
 ## 推荐站点
 
-- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
-- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
-- [北医三院试管成功案例分析报告怎么写——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/18.html)
-- [潍坊人民医院试管婴儿成功率怎么样啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/19.html)
-- [江苏省人民医院三代试管成功率——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/20.html)
-- [海南第一附属医院试管婴儿一次成功率高吗——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/21.html)
-- [有试管移植冻胚前自然怀孕的吗多少钱一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/22.html)
-- [试管孕期反应是不是比自然怀孕反应大——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/23.html)
+- [['https://www.eduency.com/115620575327.html', '深圳三代代怀公司,深圳第三代做试管可以选男女吗(深圳三代试管费用明细)']](https://www.eduency.com/115620575327.html)
+- [['https://www.phetpalace.com/471.html', '青岛哪里有供卵的,青岛供卵试管中心']](https://www.phetpalace.com/471.html)
+- [['https://www.zrbbavaq.cn/25839725507061.html', '移植鲜胚的优点，选正规代生助孕机构方案别再只看成功率了！']](https://www.zrbbavaq.cn/25839725507061.html)
+- [['https://www.hg00fj88.com/2053.html', '试管婴儿移植后着床有什么反应']](https://www.hg00fj88.com/2053.html)
+- [['https://www.jszgyh.com/228202825530.html', '三代试管15个囊胚染色体检查筛查通过率是多少？']](https://www.jszgyh.com/228202825530.html)
+- [['https://www.xnnpbhdz.cn/36300736443254.html', '贵州做供(借)卵试管婴儿私立医院排名，附2026供卵生男孩收费详情参考 ,哪家医院可以找人代孕']](https://www.xnnpbhdz.cn/36300736443254.html)
+- [['https://www.skiguo.cn/20250927-179.html', '试管供卵排名-27岁绝经还能恢复吗']](https://www.skiguo.cn/20250927-179.html)
+- [['https://www.fmngst.com/1524239148997.html', '2026安徽试管男孩多少钱？试管成功率高吗？']](https://www.fmngst.com/1524239148997.html)
+- [['https://www.ewdboe.cn/508485853580.html', '北京代生医院实力榜：2026助孕成功率与优势解析']](https://www.ewdboe.cn/508485853580.html)
+- [['https://www.syldezdhkj.cn/16582466607645.html', '42岁取卵8个一般能配几个？,供卵试管费用']](https://www.syldezdhkj.cn/16582466607645.html)
+- [['https://www.hs52.cc/zhuanjiatuandui/290.html', '梅毒备孕前要不要去打青霉素（青霉素）']](https://www.hs52.cc/zhuanjiatuandui/290.html)
+- [['https://www.dyqlsu.com/20241229-220.html', '神州中泰昆明地址及联系方式，本地知名助孕机构的真实服务体验']](https://www.dyqlsu.com/20241229-220.html)
+- [['https://www.sasksjob.com/423754737403.html', '成都热门试管婴儿医院推荐与成功率分析']](https://www.sasksjob.com/423754737403.html)
+- [['https://www.monpun.com/6383508201592.html', None]](https://www.monpun.com/6383508201592.html)
+- [['https://www.cd-hssf.com/123650567340.html', '高龄代怀生子：艾灸对备孕有帮助吗']](https://www.cd-hssf.com/123650567340.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
