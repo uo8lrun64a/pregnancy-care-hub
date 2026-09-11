@@ -411,13 +411,20 @@ A：INCINTA会给出《中美用药转换表》，国内常见黄体酮针20 mg 
 
 ## 推荐站点
 
-- [试管移植鲜胚失败后是不是更容易自然怀孕了呢——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/24.html)
-- [不孕不育医院怎么选？从挂号到检查全流程指南](https://www.wuzhenzhi.cn/26.html)
-- [杨浦优生优育体检地址在哪里？2026上海孕前检查全攻略](https://www.wuzhenzhi.cn/28.html)
-- [疫情后去香港查男女怎么做？详细流程与注意事项](https://www.wuzhenzhi.cn/30.html)
-- [试管什么时候能纳入医保？全国政策时间线与宁夏查询指南](https://www.wuzhenzhi.cn/31.html)
-- [南京做试管婴儿，医院成功率怎么看？数据解读与选院参考](https://www.wuzhenzhi.cn/32.html)
-- [做试管成功率想自己测？先看这些环节怎么评估才最准](https://www.wuzhenzhi.cn/33.html)
-- [重庆市妇幼保健院做试管婴儿多少钱一次?费用构成全解析](https://www.wuzhenzhi.cn/34.html)
+- [['https://www.cddyunw.com/301450345217.html', '2026医保目录更新：两款乳腺癌特药新增，生育辅助治疗报销指南']](https://www.cddyunw.com/301450345217.html)
+- [['https://www.3899234.com/20250927-246.html', '代生最权威&，东莞试管费用东莞私立试管医院做第二代试管费用[广东试管婴儿]']](https://www.3899234.com/20250927-246.html)
+- [['https://www.cecigou.cn/daihuaiyunfuwu/20250928/15028.html', '宫腔粘连可以做试管不_宫腔粘连能不能做试管']](https://www.cecigou.cn/daihuaiyunfuwu/20250928/15028.html)
+- [['https://www.eduency.com/328691504196.html', '代生子包男孩:丹栀逍遥丸对子宫内膜有没有好处？逍遥丸能不能刺激内膜增厚？']](https://www.eduency.com/328691504196.html)
+- [['https://www.cmanrxrr.cn/3557795942894.html', '一觉醒来，妇产科学成了王牌专业,国内有没有代怀女']](https://www.cmanrxrr.cn/3557795942894.html)
+- [['https://www.hg00fj88.com/2295.html', '北京三代试管婴儿的费用是多少？']](https://www.hg00fj88.com/2295.html)
+- [['https://www.phetpalace.com/506.html', '男性弱精少精怎么调理']](https://www.phetpalace.com/506.html)
+- [['https://www.sdxxy.cn/20250601-486.html', '潍坊做代生公司费用成功率很高的医院排名在这']](https://www.sdxxy.cn/20250601-486.html)
+- [['https://www.gyzhixiao.cn/387.html', '广东深圳三代试管婴儿费用大概5万到25万？']](https://www.gyzhixiao.cn/387.html)
+- [['https://www.skiguo.cn/20250927-67.html', '吃榴莲有助于卵泡发育']](https://www.skiguo.cn/20250927-67.html)
+- [['https://www.fmngst.com/2851230127434.html', '想去安徽做试管婴儿推荐这三家医院？安徽做试管费用大约多少？']](https://www.fmngst.com/2851230127434.html)
+- [['https://www.cxit.com.cn/daiyunmama/14212.html', '国内试管供卵_试管捐卵中心,深圳哪里可以做三代试管婴儿？2026试管婴儿']](https://www.cxit.com.cn/daiyunmama/14212.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6275.html', 'VIP尊享：新孕国际如何为高端家庭提供私密助孕定制服务？']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6275.html)
+- [['https://www.ewdboe.cn/227414136257.html', '杭州tt国际试管医院成功率高吗？正规生殖医院如何选择与对比']](https://www.ewdboe.cn/227414136257.html)
+- [['https://www.sasksjob.com/512591852503.html', '北京试管婴儿医保纳入情况与政策解读']](https://www.sasksjob.com/512591852503.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
